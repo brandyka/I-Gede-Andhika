@@ -1,2 +1,2 @@
-# I-Gede-Andhika
-My Github profile 
+## Hello! I'm I Gede Andhika
+- 
